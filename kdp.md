@@ -18,7 +18,6 @@ In this book, we'll explore the following topics:
 
 By the end of the book, you'll have a comprehensive understanding of how to use your time wisely and achieve greater productivity, efficiency, and fulfillment. Whether you're looking to improve your personal life, advance your career, or maximize your free time, "Time is a Gift" is the ultimate guide to making the most of every moment.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
