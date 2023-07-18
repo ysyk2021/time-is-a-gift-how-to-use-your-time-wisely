@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter: Conclusion
-===================
-
 Recap of the Key Takeaways from the Book
 ----------------------------------------
 
