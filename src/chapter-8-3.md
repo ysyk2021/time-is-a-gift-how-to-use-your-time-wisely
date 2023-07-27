@@ -53,4 +53,4 @@ Failure is an inevitable part of any journey towards success. Instead of letting
 
 Take time to celebrate your milestones and progress along the way. Acknowledge the effort and dedication you've put into your journey, regardless of how small the achievement may seem. Celebrating these moments of success will boost your motivation and remind you of how far you've come.
 
-By implementing these strategies into your pursuit of personal goals, you can maintain a high level of motivation and inspiration throughout your journey. Stay focused, adapt to challenges, and remember that your time is a precious gift to be used wisely. In the next chapter, we'll explore effective time management techniques that will help optimize your productivity and propel you closer to your goals.
+By implementing these strategies into your pursuit of personal goals, you can maintain a high level of motivation and inspiration throughout your journey. Stay focused, adapt to challenges, and remember that your time is a precious gift to be used wisely.

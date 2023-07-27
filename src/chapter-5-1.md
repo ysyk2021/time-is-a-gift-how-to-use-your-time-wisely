@@ -53,4 +53,4 @@ Achieving work-life balance is an ongoing process that requires periodic evaluat
 
 * **Regularly Assess and Adjust**: Continuously assess and adjust your priorities to ensure they align with your current values and goals. Revisit and modify your strategies as needed to maintain a sustainable work-life balance.
 
-Remember, achieving work-life balance is a personal journey. What works for others may not work for you, so be patient and adaptable as you find your unique equilibrium. By prioritizing your well-being, setting boundaries, practicing effective time management, and seeking support when needed, you can maintain a healthy work-life balance and make the most of your time. In the next chapter, we will explore strategies for effective goal setting and prioritization.
+Remember, achieving work-life balance is a personal journey. What works for others may not work for you, so be patient and adaptable as you find your unique equilibrium. By prioritizing your well-being, setting boundaries, practicing effective time management, and seeking support when needed, you can maintain a healthy work-life balance and make the most of your time.

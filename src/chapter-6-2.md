@@ -44,4 +44,4 @@ Conclusion
 
 Adjusting plans as circumstances change is a crucial skill in effective time management. By understanding the need for plan adjustment and employing the techniques outlined in this chapter, you can navigate unexpected events, shifting priorities, and unforeseen obstacles with confidence. Remember to regularly review your plans, build in flexibility, reprioritize when necessary, delegate tasks, adjust your time blocks, and maintain a growth mindset. These techniques will empower you to make the most of your time, even in the face of changing circumstances.
 
-Now that you have learned effective techniques for adjusting plans, you are equipped to handle unexpected changes and continue using your time wisely. In the next chapter, we will explore strategies for maintaining focus and overcoming distractions.
+Now that you have learned effective techniques for adjusting plans, you are equipped to handle unexpected changes and continue using your time wisely.

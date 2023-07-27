@@ -56,4 +56,4 @@ Nurturing healthy relationships both at work and in personal life can contribute
 
 Remember that achieving work-life balance is an ongoing process. Regularly reassess your priorities and make necessary adjustments. As circumstances change, adapt your strategies to ensure that your work-life balance remains intact.
 
-Creating a work-life balance that supports overall well-being requires conscious effort and commitment. By establishing boundaries, prioritizing self-care, practicing effective time management, fostering supportive relationships, and adapting to evolving circumstances, individuals can achieve a fulfilling and sustainable work-life balance. In the next chapter, we will explore methods for enhancing productivity and time management in the digital age.
+Creating a work-life balance that supports overall well-being requires conscious effort and commitment. By establishing boundaries, prioritizing self-care, practicing effective time management, fostering supportive relationships, and adapting to evolving circumstances, individuals can achieve a fulfilling and sustainable work-life balance.

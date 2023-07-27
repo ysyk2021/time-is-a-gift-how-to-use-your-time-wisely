@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of time management in achieving personal and professional success](chapter-1-1.md)
   - [Overview of the benefits of using time wisely](chapter-1-2.md)
-  - [Brief on how the book will help readers make the most of their time](chapter-1-3.md)
 - [Chapter 1: Understanding the Value of Time](chapter-2.md)
   - [Understanding what it means to use time wisely](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards time management](chapter-2-2.md)
