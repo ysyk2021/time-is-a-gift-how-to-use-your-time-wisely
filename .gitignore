@@ -3,4 +3,5 @@ _book/
 node_modules/
 *.epub
 *.pdf
+*.azw3
 *.mobi

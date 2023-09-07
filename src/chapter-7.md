@@ -1,5 +1,3 @@
-Chapter 6: Managing Stress and Avoiding Procrastination
-=======================================================
 
 In this chapter, we will explore the importance of managing stress and avoiding procrastination in using time wisely. We will also discuss techniques for managing stress and anxiety and strategies for overcoming procrastination and staying motivated in pursuit of personal goals.
 

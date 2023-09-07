@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindset Towards Time Management
-========================================================================================================
 
 In this chapter, we will explore techniques for cultivating a mindset towards time management. By adopting a proactive approach to time management, individuals can prioritize tasks effectively and use their time more productively.
 

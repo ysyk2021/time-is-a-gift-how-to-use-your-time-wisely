@@ -1,5 +1,3 @@
-Techniques for Cultivating a Sense of Gratitude and Inner Peace
-========================================================================
 
 In this chapter, we explore various techniques that can help readers cultivate a sense of gratitude and inner peace. By developing these practices, readers will be able to appreciate the present moment, find contentment, and enhance their overall well-being.
 

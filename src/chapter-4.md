@@ -1,5 +1,3 @@
-Chapter 3: Developing Effective Time Management Skills
-======================================================
 
 In this chapter, we will explore the role of effective time management skills in using time wisely. We will also discuss techniques for staying organized and efficient through time management, as well as strategies for avoiding distractions and staying focused on the task at hand.
 

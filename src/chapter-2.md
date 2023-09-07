@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Value of Time
-==========================================
 
 In this chapter, we will explore the value of time and provide techniques for cultivating a mindset towards time management. We will also provide tips for identifying personal obstacles to time management and overcoming them.
 

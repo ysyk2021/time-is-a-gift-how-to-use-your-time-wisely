@@ -1,5 +1,3 @@
-Chapter 5: Embracing Flexibility and Adaptability
-=================================================
 
 In this chapter, we will explore the importance of flexibility and adaptability in using time wisely. In today's fast-paced world, circumstances can change quickly, and being able to adjust plans and strategies accordingly is critical for achieving success.
 

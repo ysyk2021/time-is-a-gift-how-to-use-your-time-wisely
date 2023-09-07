@@ -1,5 +1,3 @@
-Overview of the Benefits of Using Time Wisely
-======================================================
 
 Using time wisely is not just about being efficient or productive; it is about recognizing the true value of time and harnessing its potential for personal growth and happiness. In this chapter, we will explore the numerous benefits that come from using time wisely.
 

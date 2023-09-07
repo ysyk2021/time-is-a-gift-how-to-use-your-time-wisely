@@ -1,5 +1,3 @@
-Strategies for Staying Motivated and Inspired in Pursuit of Personal Goals
-===================================================================================
 
 In this chapter, we will delve into various strategies that can help you stay motivated and inspired while working towards your personal goals. These techniques will provide the necessary tools to overcome challenges, maintain focus, and fuel your enthusiasm throughout your journey.
 

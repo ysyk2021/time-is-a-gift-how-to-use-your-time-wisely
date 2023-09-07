@@ -1,5 +1,3 @@
-Chapter 4: Balancing Work and Life
-==================================
 
 In this chapter, we will explore the importance of balancing work and life in using time wisely. We will also discuss techniques for creating a work-life balance that supports overall well-being, as well as strategies for managing time effectively and avoiding burnout.
 

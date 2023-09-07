@@ -33,3 +33,4 @@
   - [Strategies for staying motivated and inspired in pursuit of personal goals](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

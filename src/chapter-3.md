@@ -1,5 +1,3 @@
-Chapter 2: Defining Priorities and Goals
-========================================
 
 In this chapter, we will explore the importance of defining priorities and goals in using time wisely. We will also discuss techniques for setting effective and achievable goals that align with personal values, as well as strategies for prioritizing tasks and activities to maximize efficiency and effectiveness.
 
