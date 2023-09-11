@@ -1,5 +1,4 @@
-Chapter: Strategies for Prioritizing Tasks and Activities to Maximize Efficiency and Effectiveness
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

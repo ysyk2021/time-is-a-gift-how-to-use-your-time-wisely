@@ -1,5 +1,4 @@
-Chapter: The Importance of Defining Priorities and Goals in Using Time Wisely
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

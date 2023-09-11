@@ -1,5 +1,4 @@
-Chapter: Tips for Identifying Personal Obstacles to Time Management and Overcoming Them
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

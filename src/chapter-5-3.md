@@ -1,5 +1,4 @@
-Chapter: Strategies for Managing Time Effectively and Avoiding Burnout
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
